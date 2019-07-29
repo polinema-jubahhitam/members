@@ -1,3 +1,3 @@
 Member: 
 
-Septian Enggar Sukmana - [arsenewe](https://github.com/arsenewe)
+Septian Enggar - [arsenewe](https://github.com/arsenewe)
